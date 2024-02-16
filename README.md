@@ -1,4 +1,5 @@
-![12333](https://github.com/SNOOPYzc/SNOOPYc/assets/160221841/c64633b9-e7fd-42b7-be41-58d94ef057c4)
+![manga_ just listen to the song](https://github.com/SNOOPYzc/SNOOPYc/assets/160221841/b5f26fd3-7b1b-47f8-a718-1b8eb4ee53b7)
+
 
 # สมุดบันทึก
 สำหรับวิชา OOP 
