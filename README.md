@@ -1,4 +1,4 @@
-![manga_ just listen to the song](https://github.com/SNOOPYzc/SNOOPYc/assets/160221841/b5f26fd3-7b1b-47f8-a718-1b8eb4ee53b7)
+![5555](https://github.com/SNOOPYzc/SNOOPYc/assets/160221841/948b0a4d-c3f6-41a0-bc6b-7f30ced37121)
 
 
 # สมุดบันทึก
