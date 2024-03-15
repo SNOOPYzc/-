@@ -5,7 +5,7 @@ application tiitle
 
 Auther
 * UD 661145540607
-* Name :  Rattasat lohana
+* Name :  รัฐศาสตร์ เลาะหะนะ
 
 
 * Tecnology : pygame
