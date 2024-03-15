@@ -16,3 +16,7 @@ Auther
 
 
 * preseentation : [https://www.canva.com/design/DAF_mBjPINY/3llc3ZFW5kd6pry8lPmKow/edit?utm_content=DAF_mBjPINY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton]link [pulic]
+* Video : (https://drive.google.com/file/d/135EkHwrue9SDMBdn0KL0vzHUQfe9ng7M/view?usp=sharing)
+
+video: link [public/ubu]  
+
